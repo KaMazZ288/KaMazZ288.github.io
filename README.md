@@ -1,1 +1,1 @@
-# KaMazZ288.github.io
+# KaMaZ288.github.io
